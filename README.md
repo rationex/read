@@ -20,7 +20,11 @@
   * DNI RACIST, HOMOPHOBIC, TRANSPHOBIC, ILLEGAL SHIPS AND PROSHIPPERS (depending if ITS LEGAL OR NOT). I will not tolerate with you and PLEASE leave because this user is GAY !!!! *proud
  
   * IMPORTANT NOTES !!: I have multiple of shadings as well, and I most likely to mix them together - some will POSSIBLY be my friends'. Do NOT COPY SKINS FROM OTHERS OR ME!! Ask inspo, please. it is rude and DISRESPECTFUL for doing those things.
- 
+
+- PICTURES CREDIT TO THE OWNER !!
+
   * more will be in my future strawpage! thank you for taking your time of reading these notes. farewell, traveler.
+ 
+  * main github [will not be active there but go follow lol] : @CREMEBRULEE-COOKIE
  
     ![14ba2241-f28b-4284-8a43-9173ef14fcc1](https://github.com/user-attachments/assets/68daa6cb-9062-4102-b33c-90366941ae48)
