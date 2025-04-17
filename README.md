@@ -3,7 +3,8 @@
 
 * rationex, purerecluse, creme brulee, ratiovillette, JEX [ MAINLY USED ], or the character(s) I'm using [ PONYTOWN PURPOSES!! ]
 
-  ![Cookie0593-eat](https://github.com/user-attachments/assets/f79538a7-41a9-42a8-8545-7d19dedbb897)
+  ![87081cb7-5020-4d4d-830a-1b569d4b1ba4](https://github.com/user-attachments/assets/312a140a-366f-4795-a8b5-2e725f93e791)
+
 
 * i use he/they, do not prefer she/her unless we are very close and I'm starting to get comfortable with you. adhd, an ambivert.
 
