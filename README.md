@@ -10,6 +10,9 @@
 
 * - i referring myself as non-binary by the way. unless you wanted to know my identity, let's go through whisper and know each other closer. i am mostly offtab and afk, so please whisper if you have anything. compliments, crowns, chats, anything but no mocking or even harsh stuffs in my whispers. it is forbidden!
  
+    ![a6c49b3d-abb1-4c3e-bc86-9905f59e9564](https://github.com/user-attachments/assets/d7ddbf2a-ecd9-4687-bd0c-6e6eeff53a53)
+
+ 
   * love listening to music, drawing(traditionally), making characters/ocs, playing games and chit chat with friends! cuddles and hide always allowed!!
  
   * i love making new friends so please don't hesitate. i have multiple personalities,so beware of this. i will talk about my favorite character(s) almost non-stop - if you're uncomfortable or quite annoyed, please let me know because I dont like crossing anyone's boundaries. also putting public chat off because mostly I would be quite overwhelmed by the bubble chats, and quite annoying and it makes me suffocating.
