@@ -25,6 +25,4 @@
 
   * more will be in my future strawpage! thank you for taking your time of reading these notes. farewell, traveler.
  
-  * main github [will not be active there but go follow lol] : @CREMEBRULEE-COOKIE
- 
     ![14ba2241-f28b-4284-8a43-9173ef14fcc1](https://github.com/user-attachments/assets/68daa6cb-9062-4102-b33c-90366941ae48)
