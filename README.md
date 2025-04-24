@@ -20,6 +20,10 @@
   * DNI RACIST, HOMOPHOBIC, TRANSPHOBIC, ILLEGAL SHIPS AND PROSHIPPERS (depending if ITS LEGAL OR NOT). I will not tolerate with you and PLEASE leave because this user is GAY !!!! *proud
  
   * IMPORTANT NOTES !!: I have multiple of shadings as well, and I most likely to mix them together - some will POSSIBLY be my friends'. Do NOT COPY SKINS FROM OTHERS OR ME!! Ask inspo, please. it is rude and DISRESPECTFUL for doing those things.
+ 
+  * ⛔ : afk
+  * 🌙: offtab
+  * online : on tab
 
 - PICTURES CREDIT TO THE OWNER !!
 
