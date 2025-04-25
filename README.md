@@ -17,6 +17,8 @@
  
   * i love making new friends so please don't hesitate. i have multiple personalities,so beware of this. i will talk about my favorite character(s) almost non-stop - if you're uncomfortable or quite annoyed, please let me know because I dont like crossing anyone's boundaries. also putting public chat off because mostly I would be quite overwhelmed by the bubble chats, and quite annoying and it makes me suffocating.
  
+  * kins : rougefort cookie, creme brulee cookie, CYNO, NEUVILLETTE, ratio, AVENTURINE, pantalone, zhongli, WANDERER/SCARA, MAMMON, BELPHEGOR, solomon, KAVEH, kaeya
+ 
   * DNI RACIST, HOMOPHOBIC, TRANSPHOBIC, ILLEGAL SHIPS AND PROSHIPPERS (depending if ITS LEGAL OR NOT). I will not tolerate with you and PLEASE leave because this user is GAY !!!! *proud
  
   * IMPORTANT NOTES !!: I have multiple of shadings as well, and I most likely to mix them together - some will POSSIBLY be my friends'. Do NOT COPY SKINS FROM OTHERS OR ME!! Ask inspo, please. it is rude and DISRESPECTFUL for doing those things.
